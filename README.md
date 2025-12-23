@@ -18,10 +18,11 @@ Chúng em xin gửi lời cảm ơn chân thành đến thầy ĐẶNG NGỌC HO
 Mặc dù môn học và đề tài dự án có nhiều thử thách, nhưng đây cũng là cơ hội quý giá để chúng em rèn luyện tư duy thuật toán, kỹ năng làm việc nhóm và khả năng giải quyết vấn đề. Với sự nỗ lực của cả nhóm cùng sự hướng dẫn và hỗ trợ từ thầy, chúng em đã hoàn thành dự án một cách trọn vẹn.
 
 Cuối cùng, em xin cảm ơn các thành viên trong nhóm đã luôn hợp tác, hỗ trợ và cùng nhau vượt qua những khó khăn để hoàn thành dự án này. 
-*Trân trọng,* 
-*Cao Hà Nhi*
+- *Trân trọng,* 
+- *Cao Hà Nhi*
 
 ______
+
 
 
 
